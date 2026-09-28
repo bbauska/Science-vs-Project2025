@@ -1,4 +1,7 @@
 # Science-vs-Project2025
+## How We Resist an Authoritarian Takeover
+## and Turn Public Administration into a Force for Equity and Justice
+
 Notes on science versus project 2025 and its bullshit.
 
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
